@@ -6,7 +6,7 @@
   * Twitter: kostek_fairhair
   * LinkedIn: Konstantyn Romanowski
   * Facebook: Konstantyn Romanowski
-  * Instagram: bloody_kostek
+  * Instagram: konstantyn_1_fairhair
 
 <!---
 KonstantynRomanowski/KonstantynRomanowski is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
