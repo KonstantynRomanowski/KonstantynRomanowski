@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on learning Python.
 - 📫 How to reach me:
   * Twitter: kostek_fairhair
-  * LinkedIn: Konstantyn Romanowski
+  * LinkedIn: Konstantyn Romanowski(https://www.linkedin.com/in/konstantyn-romanowski🐻-a0a648231/)
   * Facebook: Konstantyn Romanowski
   * Instagram: konstantyn_1_fairhair
 
